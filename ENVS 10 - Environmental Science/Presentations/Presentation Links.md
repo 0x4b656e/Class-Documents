@@ -20,8 +20,8 @@
 
 [*Scientific Principles and Basic Chemistry](http://prezi.com/wywvjzryud_l/?utm_campaign=share&utm_medium=copy&rc=ex0share)
 
-[Energy in Systems-Basics for Environmental Science](http://prezi.com/qmpzwfetmgq5/?utm_campaign=share&utm_medium=copy)
+[*Energy in Systems-Basics for Environmental Science](http://prezi.com/qmpzwfetmgq5/?utm_campaign=share&utm_medium=copy)
 
-[Basic Energy Principles for Environmental Science](http://prezi.com/vbuwubsdvz-p/?utm_campaign=share&utm_medium=copy)
+[*Basic Energy Principles for Environmental Science](http://prezi.com/vbuwubsdvz-p/?utm_campaign=share&utm_medium=copy)
 
-[Ecological Concepts](http://prezi.com/ct48gxo8uym_/?utm_campaign=share&utm_medium=copy)
+[*Ecological Concepts](http://prezi.com/ct48gxo8uym_/?utm_campaign=share&utm_medium=copy)
