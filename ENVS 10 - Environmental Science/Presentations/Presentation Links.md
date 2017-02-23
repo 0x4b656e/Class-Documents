@@ -18,21 +18,21 @@
 
 [Avoiding the Tragedy of the Commons](http://prezi.com/vp3hnyjrrqe6/?utm_campaign=share&utm_medium=copy)
 
-[*Scientific Principles and Basic Chemistry](http://prezi.com/wywvjzryud_l/?utm_campaign=share&utm_medium=copy&rc=ex0share)
+[Scientific Principles and Basic Chemistry](http://prezi.com/wywvjzryud_l/?utm_campaign=share&utm_medium=copy&rc=ex0share)
 
-[*Energy in Systems-Basics for Environmental Science](http://prezi.com/qmpzwfetmgq5/?utm_campaign=share&utm_medium=copy)
+[Energy in Systems-Basics for Environmental Science](http://prezi.com/qmpzwfetmgq5/?utm_campaign=share&utm_medium=copy)
 
-[*Basic Energy Principles for Environmental Science](http://prezi.com/vbuwubsdvz-p/?utm_campaign=share&utm_medium=copy)
+[Basic Energy Principles for Environmental Science](http://prezi.com/vbuwubsdvz-p/?utm_campaign=share&utm_medium=copy)
 
-[*Ecological Concepts](http://prezi.com/ct48gxo8uym_/?utm_campaign=share&utm_medium=copy)
+[Ecological Concepts](http://prezi.com/ct48gxo8uym_/?utm_campaign=share&utm_medium=copy)
 
-[*Organisms Have Interactions](http://prezi.com/xqcfudu_bnml/?utm_campaign=share&utm_medium=copy&rc=ex0share)
+[Organisms Have Interactions](http://prezi.com/xqcfudu_bnml/?utm_campaign=share&utm_medium=copy&rc=ex0share)
 
-[*Nutrient Cycles](http://prezi.com/tp-uzqgffcrc/?utm_campaign=share&utm_medium=copy&rc=ex0share)
+[Nutrient Cycles](http://prezi.com/tp-uzqgffcrc/?utm_campaign=share&utm_medium=copy&rc=ex0share)
 
-[*Sucession is Like Stepping Stones](http://prezi.com/ozf5he7w5pa2/?utm_campaign=share&utm_medium=copy&rc=ex0share)
+[Sucession is Like Stepping Stones](http://prezi.com/ozf5he7w5pa2/?utm_campaign=share&utm_medium=copy&rc=ex0share)
 
-[*Biomes](http://prezi.com/k14qaw63favf/?utm_campaign=share&utm_medium=copy)
+[Biomes](http://prezi.com/k14qaw63favf/?utm_campaign=share&utm_medium=copy)
 
 [*Fresh Water Ecosystems](http://prezi.com/ryevmkkhtzmj/?utm_campaign=share&utm_medium=copy)
 
